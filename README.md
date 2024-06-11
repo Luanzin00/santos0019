@@ -1,1 +1,6 @@
-# santos0019
+- # Bem-vindo ao meu perfil! 😃
+- Meu nome é Luan
+- Sou estudante da 2 série do Ensino médio
+- Estou interessado nas áreas de esporte
+- Meu Instragram é luanzin_0019
+- Meu e-mail é 00001136514296sp@l.educacao.sp.gov.br
